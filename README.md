@@ -1,3 +1,3 @@
 # planner
 let's do it!!
-khzskhxskix
+Mai hooon khalnayak.
